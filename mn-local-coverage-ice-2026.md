@@ -52,6 +52,9 @@
 18. [Chris Juhn](https://sahanjournal.com/author/chris-juhn/) | [Facebook](https://www.facebook.com/chris.jesus.73157/) | [Instagram](https://www.instagram.com/juhnchris/) | [MPR](https://www.mprnews.org/people/christopher-juhn)
     <br>Recent: [Noise protest at Edina hotel aims to get 'ICE out of Minnesota'](https://sahanjournal.com/immigration/ice-noise-protest-hotel-edina-minnesota/)
 
+19. [Georgia Fort](https://www.georgiafort.com) | [Facebook](https://www.facebook.com/ByGeorgiaFort) | [Instagram](https://www.instagram.com/byGeorgiaFort/) | [TikTok](https://www.tiktok.com/@byGeorgiaFort) | [X](https://x.com/byGeorgiaFort)
+    <br>Recent: [Minneapolis Journalist On ICE Killing, Civil Rights Reckoning, And What Mass Media Is Missing](https://www.blackenterprise.com/minneapolis-civil-rights-journalist-georgia-fort/)
+
 ---
 
 **Community Resources:**
