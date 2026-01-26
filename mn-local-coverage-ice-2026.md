@@ -55,6 +55,15 @@
 19. [Georgia Fort](https://www.georgiafort.com) | [Facebook](https://www.facebook.com/ByGeorgiaFort) | [Instagram](https://www.instagram.com/byGeorgiaFort/) | [TikTok](https://www.tiktok.com/@byGeorgiaFort) | [X](https://x.com/byGeorgiaFort)
     <br>Recent: [Minneapolis Journalist On ICE Killing, Civil Rights Reckoning, And What Mass Media Is Missing](https://www.blackenterprise.com/minneapolis-civil-rights-journalist-georgia-fort/)
 
+20. [West St. Paul Reader](https://weststpaulreader.com/) | [Facebook](https://www.facebook.com/WestStPaulReader)
+    <br>Recent: [Ongoing Updates on ICE in West St. Paul](https://weststpaulreader.com/2026/01/13/ice-in-west-st-paul/)
+
+21. [Southwest Connector](https://www.swconnector.com/) | [Facebook](https://www.facebook.com/swaborhood/) (part of [TMC Publications](https://www.tmcpub.com/))
+    <br>Recent: [ICE agents use rubber bullets in front of MPS Transition Plus students in school bus](https://www.swconnector.com/stories/ice-agents-use-rubber-bulletsin-front-of-mps-transition-plus-students-in-school-bus,145789)
+
+22. [The Circle](https://thecirclenews.org/) | [Facebook](https://www.facebook.com/TheCircleNews/) | [Instagram](https://www.instagram.com/thecirclenews/) — News from a Native American Perspective
+    <br>Recent: [Eyewitness says ICE gave conflicting orders before shooting woman](https://thecirclenews.org/cover-story/eyewitness-says-ice-gave-conflicting-orders-before-shooting-woman/)
+
 ---
 
 **Community Resources:**
